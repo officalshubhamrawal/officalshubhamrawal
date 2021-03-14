@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Shubham Rawal
-- 👀 I’m interested in solving real life problems and bulding businesses through technology.
+- 👀 I’m interested in solving real life problems and building long term businesses through technology.
 - 🌱 Founder @ SabPay Technologies
 - 💞️ I’m looking to collaborate on projects and building startups.
 - 📫 How to reach me : Email: Shubhamrawal4@gmail.com 
