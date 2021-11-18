@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Shubham Rawal
 - 👀 I’m interested in solving real life problems and building long term businesses through technology.
-- 🌱 Founder @ SabPay Technologies
+- 🌱 Founder @ StockPe
 - 💞️ I’m looking to collaborate on projects and building startups.
 - 📫 How to reach me : Email: Shubhamrawal4@gmail.com 
 
